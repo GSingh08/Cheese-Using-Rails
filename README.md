@@ -1,6 +1,5 @@
 # HOMEWORK: Straight CURDin' PART DEUX
 
-![image](https://media.giphy.com/media/332SpoiZo7ToI/giphy.gif)
 ![image](https://i.imgur.com/XZaeNOU.gif)
 ![iamge](https://media1.tenor.com/images/a83710a9b9416d7480518f401f8ccaab/tenor.gif)
 
